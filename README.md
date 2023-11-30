@@ -1,4 +1,4 @@
-- Hi, I’m @astumpf84
+- Hi, I’m Andrea. 
 - I work at the University of Vermont. 
 - I do research on urban streams for the Jefferson lab.
   
